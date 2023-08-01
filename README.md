@@ -3,7 +3,7 @@
 > 
 > but rather to skid in broadside in a cloud of smoke, <br>
 > thoroughly used up, totally worn out, <br>
-> and loudly proclaiming "**Wow! What a Ride!**" 🧗 </p>
+> and loudly proclaiming "**WOW! WHAT A RIDE!**" </p>
 > <br>
 > -- Hunter S. Thompson, The Proud Highway: Saga of a Desperate Southern Gentleman, 1955-1967
 
