@@ -1,13 +1,7 @@
-"Life should not be a journey to the grave  
-with the intention of  
-arriving safely in a pretty and well preserved body,   
+"Life should not be a journey to the grave with the intention of arriving safely in a pretty and well preserved body,   
+but rather to skid in broadside in a cloud of smoke, thoroughly used up, totally worn out, and loudly proclaiming "Wow! What a Ride!"
 
-but rather to skid in broadside in a cloud of smoke,   
-thoroughly used up, totally worn out,   
-and loudly proclaiming "Wow! What a Ride!"
-
-- Hunter S. Thompson,
-- The Proud Highway: Saga of a Desperate Southern Gentleman, 1955-1967
+- Hunter S. Thompson, The Proud Highway: Saga of a Desperate Southern Gentleman, 1955-1967
 
 
 <picture>
